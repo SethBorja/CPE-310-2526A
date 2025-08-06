@@ -14,4 +14,4 @@ I like to watch movies and listen to music in my spare time.
 
 I am a Hardworker and I am a very patient person.
 
-And I always bring my A game and enjoy everything in life.
+And I always bring my A-game and enjoy everything in life.
